@@ -1,1 +1,0 @@
-# khaunde_tabrik2
